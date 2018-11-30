@@ -1,0 +1,2 @@
+# zuzannaschmidt.com
+zuzannaschmidt.com
